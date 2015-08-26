@@ -1,3 +1,5 @@
+**Response to Jenkins and Clark**
+
 As someone who previously never frequently encountered, or even really found interesting, the study of history theory, I found Clark’s early synthesis and Jenkins’ examination of what history ‘really is’ in *Re-thinking History* enormously helpful both in summarizing the ideas currently being batted around by scholars, and in getting me far more interested in the more theoretical, philosophical side of the field.
 
 Not only that, but I have seen how applicable and relevant the issues addressed by Jenkins have been to my own studies all this time, before I even read his work. 
